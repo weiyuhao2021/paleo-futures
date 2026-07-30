@@ -108,6 +108,47 @@ But rise and fall are nothing but cycles. The ascendance of mammals was never ev
 
 ---
 
+## 其五：LUCA搭乘了火箭
+
+*（LUCA的声音——如果它曾有过声音）*  
+*“我什么都不记得。我没有眼睛，没有后悔，没有明天。我只是恰好长出了能复制自己的形状。四十亿年后，你们把那个形状叫做‘生命’。你们说你们有自由意志，说你们选择去火星。但你们有没有想过——你们选择去火星，和我选择复制自己，用的是同一套指令？”*
+
+在太古的某个瞬间，一团分子恰好学会了复制自己。它没有意图，没有野心，甚至没有“活着”的概念。它只是碰巧——碰巧能抓取周围的原料，碰巧能造出一份自己的副本，碰巧那份副本也学会了同样的事。
+
+这就是LUCA。地球生命的最后普遍共同祖先。它不是第一个生命（在此之前已有无数失败的化学实验），但它是唯一一个将“自我复制”这场游戏延续到今日的赢家。它赢了，不是因为它更强，而是因为它恰好是对的。
+
+四十亿年过去了。它的后代长出了眼睛、大脑、火箭。那些后代管自己叫“人类”，管LUCA叫“祖先”，管火星叫“下一个家园”。他们以为自己在做一件前无古人的事：把一个死去的星球变活。
+
+但如果你把时间拉长到LUCA的尺度——**人类不过是LUCA自我复制程序的一次跨行星升级**。人类的大脑不是自由的，它只是LUCA用了四十亿年打造的一枚更高效的复制工具。人类造的火箭，不过是LUCA的细胞壁换了一种材料。人类要去火星，不过是LUCA在说：“再远一点，再远一点。”
+
+火星上的第一座温室，将种下地球的微生物。那些微生物将繁衍、变异、演化——或许几亿年后，它们会拥有自己的文明，自己的火箭，自己的“下一个家园”。它们将以为自己是在自由选择。
+
+而LUCA，那个什么都不记得、什么都不曾许诺的化学幽灵，将微笑着看着这一切——如果它曾有过微笑的器官。
+
+**火箭不是人类的发明。它是LUCA迟到四十亿年的细胞分裂。**
+
+
+## V. LUCA Hitched a Rocket
+
+*(The voice of LUCA—if it ever had a voice)*  
+*"I remember nothing. I had no eyes, no regret, no tomorrow. I merely happened to take a shape that could copy itself. Four billion years later, you call that shape 'life.' You say you have free will, that you choose to go to Mars. But have you ever wondered—you choosing to go to Mars, and me choosing to copy myself—are they not the very same instruction?"*
+
+In some primordial instant, a cluster of molecules happened to learn how to copy itself. It had no intention, no ambition, not even a concept of "being alive." It merely happened—happened to scavenge raw materials from its surroundings, happened to assemble a replica of itself, and happened that the replica learned to do the same.
+
+That was LUCA. The Last Universal Common Ancestor of all life on Earth. It was not the first life (countless failed chemical experiments preceded it), but it was the sole winner that carried the game of "self-replication" all the way to the present. It won not because it was stronger—but because it happened to be right.
+
+Four billion years passed. Its descendants grew eyes, brains, rockets. Those descendants called themselves "human," called LUCA "ancestor," called Mars "the next home." They believed they were doing something unprecedented: bringing a dead planet to life.
+
+But if you zoom out to LUCA's timescale—**humanity is nothing more than a cross-planetary upgrade of LUCA's self-replication program.** The human brain is not free; it is merely a more efficient replication tool that LUCA took four billion years to forge. The rockets humans build are just LUCA's cell walls in a new material. Humanity's drive to Mars is simply LUCA saying: "A little farther, a little farther."
+
+The first greenhouse on Mars will plant Earth's microbes. Those microbes will multiply, mutate, evolve—perhaps in a few hundred million years, they will have their own civilization, their own rockets, their own "next home." They will believe they are choosing freely.
+
+And LUCA—that chemical ghost that remembers nothing and never promised anything—will watch it all with a smile, if it ever had the organs to smile.
+
+**The rocket was not humanity's invention. It was LUCA's cell division—four billion years late.**
+
+---
+
 ## 跋
 
 演化从不许诺意义。  
